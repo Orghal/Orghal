@@ -10,7 +10,7 @@ I specialize in custom automation solutions for Excel, VBA, Python, and browsers
 - 💞️ Passionate about World of Warcraft, Cinema 4D animation and modeling
 
 Contact:
-✉️ dmpintal@yahoo.com | dmpintal@gmail.com
+✉️ dmpintal@yahoo.com or dmpintal@gmail.com
 
 Socials:
 💬 Messenger: https://m.me/dawidpintal<br>
