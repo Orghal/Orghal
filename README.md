@@ -7,7 +7,7 @@ I specialize in custom automation solutions for Excel, VBA, Python, and browsers
 - 🌱 Long time experience in graphic design, programming and advertise
 - 👀 Open to creating **any kind of automation** for you
 - 🧩 Junior in Unity 6 developing
-- 💞️ Passionate about World of Warcraft, Cinema 4D animation and modeling
+- 💞️ Passionate about World of Warcraft, Unity 6, Cinema 4D animation and modeling
 
 Contact:
 ✉️ dmpintal@yahoo.com or dmpintal@gmail.com
